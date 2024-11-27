@@ -1,1 +1,0 @@
-# Practica-APS-A07
